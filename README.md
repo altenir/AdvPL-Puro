@@ -6,4 +6,4 @@ https://www.youtube.com/playlist?list=PLJGQwstOOLys0vGFHCvqyBhjyS2OSPrWz
 
 Configuração do ambiente realizada em https://vlopes.com.br/
 
-Contato através do e-mail contato@vlopes.com.r
+Contato através do e-mail contato@vlopes.com.br
